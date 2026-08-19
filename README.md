@@ -1,4 +1,4 @@
-![Header](.github-header-banner.png/)
+
 
 
 # Hello world!! :D I am M1KUPRO67 da programer
