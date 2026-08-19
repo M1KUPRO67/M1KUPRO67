@@ -22,6 +22,6 @@ I really enjoy DOS and Linux!
 
 Idk im a guy and miku is cute XD 
 
-##Why dose my account exist?
+## Why dose my account exist?
 
 No idea too
