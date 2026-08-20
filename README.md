@@ -17,7 +17,7 @@ Phyton
 
 ## Who am I?
 
-I am 16 years old and I love computers alot and I use linux because I enjoy it over the flex of useing arch. My profile is my nice conrner of the web! Sorry for spelling being bad alot I have dislexica. I have a strong intrest in FOSS im not a pureist tho.
+I love computers alot and I use linux because I enjoy it over the flex of useing arch. My profile is my nice conrner of the web! Sorry for spelling being bad alot I have dislexica. I have a strong intrest in FOSS im not a pureist tho.
 I really enjoy DOS and Linux!
 
 ## Why is my profile miku?
