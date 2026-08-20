@@ -7,8 +7,8 @@ Dos enjoyer
 FOSS entheist
 
 ## Current projects
-Starting my github profile
-Learning code
+Setting up Python
+Git commands
 
 ## Learning
 Git
