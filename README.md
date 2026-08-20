@@ -1,6 +1,6 @@
 ![Header Banner](./github-header-banner.png)
 
-# Hello world!! :D I am M1KUPRO67 da programer
+# Hello world!! I am M1KUPRO67 the programer
 
 Linux user - Arch with i3
 Dos enjoyer
