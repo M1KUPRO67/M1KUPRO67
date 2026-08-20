@@ -7,7 +7,7 @@ Dos enjoyer
 FOSS entheist
 
 ## Current projects
-Setting up Python
+My neo citys website!!
 Git commands
 
 ## Learning
