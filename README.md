@@ -11,10 +11,8 @@ My neo citys website!!
 Git commands
 
 ## Learning
-Git
-Bash
-Phyton
-
+Commands mostly
+Codeinv
 ## Who am I?
 
 I love computers alot and I use linux because I enjoy it over the flex of useing arch. My profile is my nice conrner of the web! Sorry for spelling being bad alot I have dislexica. I have a strong intrest in FOSS im not a pureist tho.
