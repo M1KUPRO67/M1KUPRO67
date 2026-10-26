@@ -2,21 +2,19 @@
 
 # Hello world!! I am M1KUPRO67 the programer
 
-Linux user - Arch with i3
-Dos enjoyer
-FOSS entheist
-
+Linux user - Devuan with i3
+Webmaster and sysadmin in learning
+Club Penguin fan
 ## Current projects
-My neo citys website!!
-Git commands
+My neo citys website!!(Sorry for it being forgotton)
 
 ## Learning
-Commands mostly
-Codeinv
+HTML
+Bash
+Python
 ## Who am I?
 
-I love computers alot and I use linux because I enjoy it over the flex of useing arch. My profile is my nice conrner of the web! Sorry for spelling being bad alot I have dislexica. I have a strong intrest in FOSS im not a pureist tho.
-I really enjoy DOS and Linux!
+I am M1KUPRO67! I am basicly a nerd (But cool tho!)... I also LOVE GITHUB AND MY FRIENDS 
 
 ## Why is my profile miku?
 
@@ -25,3 +23,6 @@ Idk im a guy and miku is cute XD
 ## Why dose my account exist?
 
 No idea too
+
+## Whats the best game?
+Club Penguin of course!
