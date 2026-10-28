@@ -12,17 +12,21 @@ My neo citys website!!(Sorry for it being forgotton)
 HTML
 Bash
 Python
+SKBIDI METHFORD TO BECOME DA ULTIMATE 67 SIGMA
 ## Who am I?
 
-I am M1KUPRO67! I am basicly a nerd (But cool tho!)... I also LOVE GITHUB AND MY FRIENDS 
+I am M1KUPRO67! I am basicly a nerd (But cool tho!)... I also LOVE GITHUB AND MY FRIENDS ALSO I HAVE SKBIDI RIZZ 
 
 ## Why is my profile miku?
 
-Idk im a guy and miku is cute XD 
+Idk im a guy and miku is cute XD AND SHES SKBIDI
 
 ## Why dose my account exist?
 
-No idea too
+No idea too 
+# BUT IT IS SIGMA
 
 ## Whats the best game?
+
 Club Penguin of course!
+bscause it has aura
