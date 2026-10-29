@@ -3,7 +3,7 @@
 # Hello world!! I am M1KUPRO67 the programer
 
 Linux user - Devuan with i3
-Webmaster and sysadmin in learning
+PRO SIGMA 67
 Club Penguin fan
 ## Current projects
 My neo citys website!!(Sorry for it being forgotton)
@@ -15,7 +15,7 @@ Python
 SKBIDI METHFORD TO BECOME DA ULTIMATE 67 SIGMA
 ## Who am I?
 
-I am M1KUPRO67! I am basicly a nerd (But cool tho!)... I also LOVE GITHUB AND MY FRIENDS ALSO I HAVE SKBIDI RIZZ 
+I am M1KUPRO67! THE TOP CODEING SIGMA OHIO SKBIDI 
 
 ## Why is my profile miku?
 
