@@ -1,6 +1,6 @@
 ![Header Banner](./github-header-banner.png)
 
-# Hello world!! I am M1KUPRO67 the programer
+# Hello skbidi world!! I am M1KUPRO67 DA PROGRAMER
 
 Linux user - Devuan with i3
 PRO SIGMA 67
@@ -30,3 +30,7 @@ No idea too
 
 Club Penguin of course!
 bscause it has aura
+
+## Why sm brainroy
+
+BECAUSE THERE IS MIKUDAYO 67 SKBIDI RIZZ I HAVE ROOT ACSESS RIZZ BECAUSE I TYPED SUDO APT INSTALL SKBIDI-RIZZ SND I CSNT STOP >_<
