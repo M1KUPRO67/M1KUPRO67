@@ -16,8 +16,11 @@ I can use Photoshop (basically) :3
 - [Neocities](https://m1kupro67.neocities.org/)
 
 ## Current projects
-My neo citys website!!(Sorry for it being forgotton)
-
+My neo citys website!!
+-Part of the frutiger areo webring
+-Has a working homepadge and about me
+-Reltively popular
+-ITS SKBIDI SIGMA FROM OHIO LEVEL OF SKBIDI RIZZ EVEN MIKU LIKES IT SIX SEVEN
 ## Learning
 HTML
 Bash
