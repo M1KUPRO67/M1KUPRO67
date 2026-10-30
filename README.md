@@ -13,6 +13,7 @@ I can use Photoshop (basically) :3
 - [Instagram](https://www.instagram.com/m1kupro67)
 - [Bluesky](https://bsky.app/profile/m1kupro67.bsky.social)
 - [GitHub](https://github.com/M1KUPRO67)
+- [Neocities](https://m1kupro67.neocities.org/)
 
 ## Current projects
 My neo citys website!!(Sorry for it being forgotton)
