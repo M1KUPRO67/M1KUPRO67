@@ -11,7 +11,7 @@ I can use Photoshop (basically) :3
 - [Tumblr](https://m1kupro67.tumblr.com/)
 - [Facebook](https://www.facebook.com/profile.php?id=61595917591011)
 - [Instagram](https://www.instagram.com/m1kupro67)
-- [Bluesky](https://bsky.app/profile/m1kupro67.bsky.social)
+- [Bluesky](https://bsky.app/profile/m1kupro67.neocities.org)
 - [GitHub](https://github.com/M1KUPRO67)
 - [Neocities](https://m1kupro67.neocities.org/)
 
