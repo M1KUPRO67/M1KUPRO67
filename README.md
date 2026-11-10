@@ -22,10 +22,14 @@ My neo citys website!!
 -Reltively popular
 -ITS SKBIDI SIGMA FROM OHIO LEVEL OF SKBIDI RIZZ EVEN MIKU LIKES IT SIX SEVEN
 ## Learning
+Java Sricpt
+
 HTML
+
 Bash
-Python
+
 SKBIDI METHFORD TO BECOME DA ULTIMATE 67 SIGMA
+
 ## Who am I?
 
 I am M1KUPRO67! THE TOP CODEING SIGMA OHIO SKBIDI 
@@ -44,6 +48,6 @@ No idea too
 Club Penguin of course!
 bscause it has aura
 
-## Why sm brainroy
+## Why sm brainrot
 
 BECAUSE THERE IS MIKUDAYO 67 SKBIDI RIZZ I HAVE ROOT ACSESS RIZZ BECAUSE I TYPED SUDO APT INSTALL SKBIDI-RIZZ SND I CSNT STOP >_<
